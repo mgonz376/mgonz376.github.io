@@ -1,1 +1,1 @@
-# mgonz376.github.io
+# My name is Maya Gonzales. And I am a student at UCSC
